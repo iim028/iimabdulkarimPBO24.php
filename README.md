@@ -1,1 +1,0 @@
-# IIM-ABDUL-KARIM
